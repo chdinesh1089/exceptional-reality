@@ -1,1 +1,1 @@
-###Exceptional Reality Group Website
+Exceptional Reality Group Website
